@@ -16,4 +16,5 @@
 ---
 
 ###  Connect with Me
-* **GitHub:** [@Maya-et](https://github.com/Maya-et)
+* **LinkedIn:** [Marta Nega](https://www.linkedin.com/in/marta-nega-desta-020523271)
+* **Email:** your.email@example.com
