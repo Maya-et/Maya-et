@@ -17,4 +17,4 @@
 
 ###  Connect with Me
 * **LinkedIn:** [Marta Nega](https://www.linkedin.com/in/marta-nega-desta-020523271)
-* **Email:** your.email@example.com
+* **Email:** negamarta18@gmail.com
